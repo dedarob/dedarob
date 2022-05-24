@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @dedarob
+- 👀 I’m interested in movies, gaming and some other stuff
+- 🌱 I’m currently learning that users here probably don't do this self-intro thing
